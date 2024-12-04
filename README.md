@@ -24,6 +24,10 @@ https://pann710.github.io/5524/
 開始
 
 
+	Museum Tower 京桥/ARTIZON美术馆
+ 149.56m
+ 地下2层、地上23层、设备间2层
+
 
  酒店提供151間客房，
  唐草飯店東京站
