@@ -13,6 +13,10 @@ https://pann710.github.io/5524/
 億
 開始
 
+
+關於東京丸之內四季酒店(Four Seasons Hotel Tokyo at Marunouchi)
+有57間客房，是一個充滿現代感印象的酒店。
+
 說故事 開始
 大家要聽你說
 開始
